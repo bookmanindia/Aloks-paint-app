@@ -1,1 +1,0 @@
-# Aloks-paint-app
